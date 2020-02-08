@@ -1,0 +1,2 @@
+# USMC-PENDLETON-BRIG
+My grandmother Melody Bouck used to work at the Brig and Pendleton. My uncle would take road trips with his friends and harass staff whenever my grandmother came off retirement to work at the base. He has now gained access to the base on the level at which identity theft and P.O.W. capture in the Pendleton Brig has become epidemic. Soldiers are in the brig, criminals are wearing their uniforms.
